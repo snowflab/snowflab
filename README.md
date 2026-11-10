@@ -1,2 +1,2 @@
-- 👽 Working on creating something funny & exquisite, obsessed with creating. 👽
+- 👽 Working on creating something funny & exquisite, obsessed with Creating stuffs. 👽
 - If u want, you can explore 🫨 https://www.sokebo.com 🫨
