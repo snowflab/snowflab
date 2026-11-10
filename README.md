@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @SnowTough
-- Working on creating something useful
+- 👋 Hi, I’m @snowflab
+- Working on creating something funny & exquisite.
+- If u want, you can explore https://www.sokebo.com
