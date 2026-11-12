@@ -1,2 +1,2 @@
-- 👽 Obsessed with Creating some FUNNY & EXQUISITE stuff. Keep CURIOUS 👽
+- 👽 Obsessed with creating something FUNNY & EXQUISITE. And always Keep CURIOUS 👽
 - If u want, you can explore 🫨 https://www.sokebo.com 🫨
