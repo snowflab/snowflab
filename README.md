@@ -1,4 +1,3 @@
-### Hi, I'm SnowF.
 ---
 - 🤔 Working on LLM FinOps (Cost governance & verification) 🤔
 - 👽 Obsessed with creating something FUNNY & EXQUISITE. Always Keep CURIOUS 👽
