@@ -1,2 +1,1 @@
-# It's me
-<img width="3833" height="2160" alt="【哲风壁纸】中式餐厅-企业家" src="https://github.com/user-attachments/assets/474da2d5-b928-412c-a8d7-123c87bf7225" />
+<img width="309" height="200" alt="tenor" src="https://github.com/user-attachments/assets/148ba963-1598-4580-a80d-63f61742b303" />
